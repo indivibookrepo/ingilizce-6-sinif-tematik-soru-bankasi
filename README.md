@@ -1,0 +1,1 @@
+# ingilizce-6-sinif-tematik-soru-bankasi
